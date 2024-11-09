@@ -75,3 +75,67 @@ Así, en 1953, se preocupa para que varios de rus hombres de confianza pongan en
 
 Sin embargo, alguna vez, la vieja verdad lo acomete y percibe la necesidad intima de visitar la casa rancho de Roque Pérez. 
 Y allá aparece, en diciembre de 1938, oportunidad en la cual-según el testimonio de José María Benardinelli, viejo vecino de la zona- reconoce el rancho e incluso señala la habitación de su nacimiento.
+
+## La familia verdadera y la familia conveniente
+
+Así como el ingreso al Colegio Militar lo forzó a Perón a modificar sus datos identificatorios, así también su condición de hombre público a quien la oposición habría de perdonarle ningún flanco débil- lo llevó a dulcificar con pinceladas rosada imagen de su familia. 
+En este sentido, resulta interesante la opinión de Alain Rouque "Perón prefiere hablar de su abuelo antes que de su padre o de su madre, lo que permité a sus enemigos lanzar el rumor de un origen muy humilde (un mayordomo y una sirviem semiindia) para desacreditarlo socialmente, en tiempos en que la buena sociedad chismoseaba en los salones"". Sin embargo, para Rouquié, esta versión lanzada por is opositores es falsa y, en cambio, conjetura que se trata de "buena familia pero en plena declinación".
+
+Ciertamente, las referencias habituales de Perón apuntan hacia su abuelo médico, figura prestigiosa del Buenos Aires de la época y hombre destacado en las filas mitristas:
+
+"El apellido Perón existe en España, Francia e Italia, acaso porque Cerdeña de donde proviene estuvo ocupada a lo largo de la historia por estas tres potencias. 
+El reino de Cerdeña estaba compuesto por la isla de Cerdeña, Génova y el Piamonte. 
+Lo cierto es que si mi apellido fuera de origen italiano nos llamaríamos Peroni. 
+De modo que acaso soy descendiente de españoles afincados en Cerdeña desde la época en que España ocupaba la isla".
+"Mi tatarabuelo era médico, médico sardo (...)". 
+Explica luego que el hijo de este, es decir, su bisabuelo, emigró a Buenos Aires, en 1860: "Recuerdo un retrato suyo, vesti- do de negro, con un cuello con encajes. 
+Se había instalado en Buenos Aires, tenía varias casas de zapatería e importaba botines de Italia". 
+Se llamaba Tomás Mario Perón y contrajo matrimonio con una escocesa, Hughes Mackenzie. 
+De esa unión nacieron siete hijos, entre los cuales se destacó Tomás Liberato Perón.
+
+Jorge Crespo, después de dedicar minuciosa atención a los antepasados de Juan Domingo, concluye señalando algunas discrepancias con este testimonio: 
+el apellido sería de origen español aunque el bisabuelo era un genovés "de oficio desconocido", no comerciante y habría llegado al país en 1831. 
+
+"Mi abuelo, Tomás Liberato Perón (17/8/1839-1/2/1889) fue uno de los médicos más famosos de Buenos Aires. 
+En política fue diputado, senador y presidente del Consejo Nacional de Higiene, que equivalía a lo que después fue el Ministerio de Salud Pública. 
+Estuvo en la guerra del Paraguay y su gran fama se debe a haber sido el primero que usó en la Argentina la vacuna antirrábica". 
+"También era doctor en química. 
+La vida de ese abuelo está sembrada de honores: 
+fue senador nacional (mitrista) por la provincia de Buenos Aires. 
+Además desempeñó varias funciones en el extranjero, especialmente en Francia, donde vivió algún tiempo. 
+También participó en la batalla de Pavón. 
+Se casó, en 1867, con Dominga Dutey o Duteil Bergougnan", oriunda de Paysandú, "hija de vascos franceses que venían de Bayona", viuda de Martirena (con quien había tenido dos hijas: Vicenta y Baldomera). 
+Gastón Federico Tobal, en su libro De un cercano pasado traza una semblanza evocativa del Dr. Tomás L. Perón, reconociéndolo como una figura muy respetada en su época: 
+"Era un auténtico sabio (...) un hombre de ciencia (...) Su fama de médico era muy grande (...) 
+Ejerció la docencia y escribió diversos tratados científicos (...) 
+Sentía un invencible amor a las plantas y a las flores y su amistad con el botánico Oto Schnyder, co-profesor de la Universidad, afianzó aquella predilección.. que en sus últimos años lo llevaría al deleite de cultivar rosas en su quinta de Ramos Mejía". 
+Dominga y Tomás tuvieron tres hijos: 
+Mario Tomás (1867) quien sería el padre de Juan, Tomás Hilario (1871), luego farmacéutico, quien se suicidará a los 29 años y Alberto Carlos (1872), quien optará por la carrera de las armas.
+
+Como puede apreciarse, estos antepasados configuran una genealogía respetable que encaja perfectamente con las posibilidades del generalato, en un país donde sus Fuerzas Armadas, si bien no se nutren generalmente en la oligarquía terrateniente, valoran a la clase media proveniente de la inmigración. 
+La familia de Juan -observada desde la perspectiva paterna- no ofrece doble apellido pero sí, en cambio, los siguientes blasones: un médico prestigioso, de de la burguesía comercial porteña, en representación del cual ejerce una diputación, varios familiares dedicados a la profesión de las armas y por si esto no fuera suficiente una bisabuela británica. 
+
+Como se analizará más adelante, existen, además, motivos íntimos que explican ea preferencia de Juan por rescatar a su rama genealógica paterna y no a la materna. 
+Pero también es cierto que desde el punto de vista del status, esta última ofrecía rasgos mas favorables para las pretensiones de ascenso en el escalafón por parte de un cadete incorporado Militar en 1910. 
+
+Los datos relativos a la familia de Juana Sosa son escasos, contradictorios y confusos.
+La abuela materna, Mercedes Toledo, aparece en algunos trabajos biográficos come hija de Victoria Gauna y padre desconocido, mientras, en otros el padre es un Toledo, sin mayores datos. 
+Esta abuela, india pura, tehuelche y oriunda de la localidad de Azul, contrajo matrimonio con Juan Ireneo Sosa, santiagueño, de familia quechua de profesión albañil, aunque algunos le adjudican haber compartido temerarias andanzas con Juan Moreira.
+Desde 1870, vivian a unos dos kilometros de la plaza de Lobos, en una choza de adobe y quincha, con piso de tierra". 
+Tuvieron siete hijos, entre ellos, Juana Sosa, la madre de Juan. 
+Como se ha dicho, ella convive en concubinato con Mario Tomás, contrayendo matrimonio recién cuando sus dos hijos tienen 9 y 11 años, respectivamente. 
+Juana Sosa sería "castellana" según apunta Perón en una declaración al pasar, mientras que algunos investigadores, como el Dr. Barreiro, la dan como india, aunque parece difícil que fuese india pura y son mayores las posibilidades de que fuese mestiza (semi-india, afirma Rouquié). 
+Crespo reproduce una anécdota de 1950, en la cual Doña Juana, levantándose la pollera y mostrando la parte superior de una de sa rodillas, muy blanca, habría dicho: 
+"Mírenme bien (...) ¿Acaso una india puede tener este color de piel?", para agregar, luego: "Pero si lo fuera, estaría orgullosa de ser india (...)". 
+También es posible que se hubiese desempeñado como empleada doméstica en alguna chacra o estancia de la vecindad (según algunos, cocinera de una estancia que explotaba el abuelo Perón, en sociedad). 
+Años más tarde, en el sur, mostrará cualidades de comadrona. 
+En lo que respecta a Mario Perón, después de rechazar la presión del padre para que continuase sus pasos en la medicina, se desempeña como administrador de campos ajenos y luego realiza algunas tentativas con campos propios, pero generalmente con resultados económicos desastrosos. 
+Obsérvese, de qué manera estos datos no son apropiados pam fundamentar un prestigio y resulta más conveniente mantenerlos en la penumbra en esca años del Centenario: 
+por un lado, una ascendencia tehuelche para un Ejército que mes décadas atrás concretó la llamada "conquista del desierto"; 
+por otro, una historia de frustraciones comerciales en momentos en que la clase dominante festeja, con bombes platillos, la tan mentada prosperidad agropecuaria del "granero del mundo".
+
+Años después y en la misma medida en que Juan acentúa su vocación popular-la abuela y la madre reciben el rescate correspondiente. 
+Entonces, esa reivindicación con trasta con los relatos complacientes de su niñez, dirigidos al gran público con la intención de "cubrir" la camisa raída de sus progenitores, con lujosa ropa prestada. 
+En el intento de reconstrucción de ese período de su vida, una lectura atenta permite descubrir, asimismo, esa encrucijada del hombre que mantiene resquemores profundos hacia su familia, pero que no está dispuesto a ventilar esos asuntos en el escenario público.
+
+Con la ayuda de sus recuerdos, emitidos en diversas oportunidades y de algunos otros testimonios, es posible intentar conocer algunos aspectos más ciertos relativos a su fami lia y su infancia, en la pampa bonaerense, durante la última década del siglo XIX.
